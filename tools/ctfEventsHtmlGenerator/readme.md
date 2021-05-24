@@ -1,3 +1,3 @@
 # Usage
 
-![hihi](https://i.imgur.com/IyJuk2n.gif)
+![hihi](https://i.imgur.com/67lBDQd.gif)
